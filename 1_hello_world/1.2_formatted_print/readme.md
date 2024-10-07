@@ -1,0 +1,1 @@
+# For section 1.2, left off and 1.2.1- This section was just mostly formatting and nothing too interesting. Will probably circle back to it at some point.
